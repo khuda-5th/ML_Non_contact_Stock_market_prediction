@@ -48,3 +48,6 @@
 
 ### 투자 전략 제안
 ![스크린샷(13)](https://github.com/khuda-5th/ML_Non_contact_Stock_market_prediction/assets/83733215/d38f5913-f722-4fc7-ab5c-c36b3d1e5ea0)
+
+## If you want to check out various activities easily and quickly
+- url : https://www.instagram.com/khu_da.official?igsh=OGVheXRkMGIwMmh5
